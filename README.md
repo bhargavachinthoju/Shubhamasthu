@@ -1,2 +1,2 @@
 # Shubhamasthu
-Website - One stop for all devotional needs
+Website - One stop solution for all devotional needs
